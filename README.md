@@ -1,1 +1,1 @@
-All the included projects were developed by me and my team. Copying and pasting the uploaded Projects for university projects/tasks is a serious offence, and may result to unwanted consequences.
+All the included projects were developed by me and partially by my team. Copying and pasting the uploaded Projects for university projects/tasks is a serious offence, and may result to unwanted consequences. For further questions, please contact me at: abdullah.zafar@stud.hshl.de
